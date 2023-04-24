@@ -1,2 +1,2 @@
-# Resume
-Latest version of my resume: 24 April 2023
+# Latest version of my resume: 24 April 2023
+
